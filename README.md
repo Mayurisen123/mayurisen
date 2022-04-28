@@ -1,6 +1,7 @@
 # mayurisen
-test
-header
-*header 2*
-**header 3**
+Hey There!!!
+
+I am Mayuri Sen
+
+I am a Master's student
 
