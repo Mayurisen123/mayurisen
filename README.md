@@ -20,6 +20,7 @@ toward a destination
 just beyond the castemark beyond his eyebrows.
 
 outside, the sun has risen quitely
+
 it aims through an eyelet in the tarpaulin.
 and shoots at the oldman`s glasses.
 
